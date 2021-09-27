@@ -1,4 +1,4 @@
-# Anthony-Deamer
+# Anthony Deamer
 
 My name is Anthony Deamer and I am looking a career in Wed development. I have spent the last 7 years working in the trade and logistics industry as a Freight Forwarder.
 I have learnt from great experiences over that time that I am hoping you bring the coding world.
