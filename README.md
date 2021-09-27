@@ -5,6 +5,7 @@ I have learnt from great experiences over that time that I am hoping you bring t
 
 Please contact me via;
 Email: anthony.deamer@hotmail.com
+
 LinkedIn: https://www.linkedin.com/in/anthony-deamer-13b3b3175/
 
 Please see my portfolio for up to date current work: https://adeamer.github.io/Week-2-homework/
